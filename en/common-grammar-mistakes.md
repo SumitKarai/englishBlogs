@@ -198,8 +198,6 @@ In music/poetry:
 
 ---
 
-## [Continued with remaining sections...]
-
 ## 15. Confusing Homophones: Words That Sound Alike
 
 ### Common Mix-Ups Table
